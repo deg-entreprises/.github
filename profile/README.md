@@ -10,3 +10,4 @@
 ![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 09](https://github.com/deg-entreprises/.github/assets/8133349/f570aa93-a494-458b-a2bb-d8522359df91)
 ![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 10](https://github.com/deg-entreprises/.github/assets/8133349/638d91d8-3a8c-4afc-8067-9dc80386c5b9)
 ![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 11](https://github.com/deg-entreprises/.github/assets/8133349/9598fad8-f8f7-4985-988c-2a13af632ae2)
+# [Access Our Pitch Deck]([www.google.com](https://deg.lemonsqueezy.com/checkout?cart=5bfe174a-aa2a-4975-9128-748fea38a21c)https://deg.lemonsqueezy.com/checkout?cart=5bfe174a-aa2a-4975-9128-748fea38a21c)
