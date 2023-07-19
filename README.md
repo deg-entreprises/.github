@@ -1,1 +1,12 @@
-# .github
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 00](https://github.com/deg-entreprises/.github/assets/8133349/c563a83a-7aa0-4144-959b-c27d00a969f4)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 01](https://github.com/deg-entreprises/.github/assets/8133349/444d59fa-ec36-402c-a3fa-04313b16fa0b)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 02](https://github.com/deg-entreprises/.github/assets/8133349/2a28fc99-f609-4911-af3e-3d162dd39b41)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 03](https://github.com/deg-entreprises/.github/assets/8133349/af5866b9-f54e-4526-8f3a-71b357af9e37)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 04](https://github.com/deg-entreprises/.github/assets/8133349/47381828-3194-4a5b-ba29-0735c2d88372)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 05](https://github.com/deg-entreprises/.github/assets/8133349/bd3ee26d-a15d-4686-a305-cb87014f6efc)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 06](https://github.com/deg-entreprises/.github/assets/8133349/2dd06033-8fca-4f27-89c8-3234c8120e03)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 07](https://github.com/deg-entreprises/.github/assets/8133349/b33578fd-0741-4c21-b660-fd6efa5454d9)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 08](https://github.com/deg-entreprises/.github/assets/8133349/fc101ada-345e-44af-b208-76d111d1aa90)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 09](https://github.com/deg-entreprises/.github/assets/8133349/f570aa93-a494-458b-a2bb-d8522359df91)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 10](https://github.com/deg-entreprises/.github/assets/8133349/638d91d8-3a8c-4afc-8067-9dc80386c5b9)
+![deg_lp0ep0gr7v1b27_20230718_manifestoMVP 11](https://github.com/deg-entreprises/.github/assets/8133349/9598fad8-f8f7-4985-988c-2a13af632ae2)
