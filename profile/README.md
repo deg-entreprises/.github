@@ -1,7 +1,4 @@
-### DEG Entreprises - Meeting Memo
-# A.2.7.0.1 Populate P3 Memo workPad
-Start Date: 2024.02.10.SAT  
-End Date: 2024.03.12.TUE
+# DEG Entreprises - P3 Memo
 
 ## Purpose
 `What is your P3 Purpose Statement?`  
